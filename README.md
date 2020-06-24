@@ -1,1 +1,1 @@
-# stripeskc.github.io
+# STRIPES OF LIBERTY LLC
