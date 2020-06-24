@@ -1,5 +1,5 @@
-![](HTTPS://WWW.images.githubusercontent.com/67387645/85617409-cea1a780-b624-11ea-8c33-9084885bd640.png "SOL LOGO")
-### THIS IS A DIRECTORY OF ALL STRIPES OF LIBERTY LINKS
+![](https://github.com/stripeskc/stripeskc.github.io/blob/master/SOL_BLACK_LONG_TRANS.png?raw=true "SOL LOGO")
+### STRIPESKC.COM --- (816) 343-8435 --- HELP DESK: (816) 343-8435 #7078 OR HELPDESK@STRIPESKC.COM
 [GOOGLE](https://www.google.com "Google")
 
 [YOUTUBE CHANNEL](https://www.YOUTUBE.COM/GTA5INMINECRAFT.com)
