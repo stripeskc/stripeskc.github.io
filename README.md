@@ -1,5 +1,5 @@
 ![](https://github.com/stripeskc/stripeskc.github.io/blob/master/SOL_BLACK_LONG_TRANS.png?raw=true "SOL LOGO")
-### STRIPESKC.COM --- (816) 343-8435 --- HELP DESK: (816) 343-8435 #7078 OR HELPDESK@STRIPESKC.COM
+### STRIPESKC.COM --- (816) 343-8435 --- HELP DESK: (816) 343-8435 #7078 
 [GOOGLE](https://www.google.com "Google")
 
 [YOUTUBE CHANNEL](https://www.YOUTUBE.COM/GTA5INMINECRAFT.com)
