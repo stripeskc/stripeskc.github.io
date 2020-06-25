@@ -1,1 +1,12 @@
-TEST
+
+## LINKS USED BY QUOTING DEPARTMENT
+
+INFOFINDER I- USED FOR BUS ROUTING INFORMATION FOR LIBERTY PUBLIC SCHOOLS 
+http://www.infofinderi.com/ifi/?cid=LPSD1TDRNLD28
+
+CLAY COUNTY ASSESOR GIS INTERNET MAPPING SERVICE FOR PROPERTY DATA
+http://gisweb.claycountymo.gov/maps/index.html
+
+CLAY COUNTY COLLECTOR, USED FOR TAXPAYER IDENTIFICATION
+https://collector.claycountymo.gov/ascend/(qudeei45zwddqvnvftlw2w45)/search.aspx
+
